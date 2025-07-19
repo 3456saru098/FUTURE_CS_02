@@ -74,5 +74,5 @@ Cybersecurity Intern – Future Interns Program
 
 ## 🌐 Contact
 
-For professional queries or collaboration, feel free to connect on [LinkedIn](https://www.linkedin.com/in/sarita-sharma).
+For professional queries or collaboration, feel free to connect on https://www.linkedin.com/in/sarita-sharma-69a461308/.
 
